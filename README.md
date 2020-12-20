@@ -25,6 +25,11 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [College Graduation Gifts For Her](https://ideasmamas.tumblr.com/post/637972260173529088)
+- [College Graduation Gifts For Her](https://ideasmama.weebly.com/blog/college-graduation-gifts-for-her)
+- [College Graduation Gifts For Her](https://ideasmamas.wordpress.com/2020/12/20/college-graduation-gifts-for-her/)
+- [College Graduation Gifts For Her](https://ideas-mama.blogspot.com/2020/12/college-graduation-gifts-for-her.html)
+- [College Graduation Gifts for Her](https://www.youtube.com/watch?v=U6B6hUlRfjg)
 <!-- BLOG-POST-LIST:END -->
 
 ?? [more blog posts...](https://about.me/ideasmamas)
