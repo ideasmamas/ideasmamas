@@ -1,8 +1,8 @@
-### Hi there, I'm Ideas Mama - aka a mom with coding brain ??
+### Hi there, I'm Ideas Mama - aka a mom with coding brain.
 ## I'm own a mother of 2, interested in cutting edge technology and coding.
 
 - ?? We provide ideas to solve daily problems.
-- ?? I’m currently learning everything that can make people happy ??
+- ?? I’m currently learning everything that can make people happy
 - ?? I’m looking to provide value to those who wish to hire me
 - ?? This year goals: Contribute to Open Source projects
 - ? Fun fact: I love to travel and play drums
