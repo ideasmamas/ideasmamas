@@ -25,6 +25,8 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Tips To Choose The Perfect Cake Stands](https://www.youtube.com/watch?v=EhGGemMMoOg)
+- [Tips To Choose The Perfect Cake Stands](https://ideas-mama.blogspot.com/2021/02/tips-to-choose-perfect-cake-stands.html)
 - [College Graduation Gifts For Her](https://ideasmamas.tumblr.com/post/637972260173529088)
 - [College Graduation Gifts For Her](https://ideasmama.weebly.com/blog/college-graduation-gifts-for-her)
 - [College Graduation Gifts For Her](https://ideasmamas.wordpress.com/2020/12/20/college-graduation-gifts-for-her/)
