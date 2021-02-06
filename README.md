@@ -25,6 +25,9 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Tips To Choose The Perfect Cake Stands](https://ideasmama.weebly.com/blog/tips-to-choose-the-perfect-cake-stands)
+- [Tips To Choose The Perfect Cake Stands](https://ideasmamas.wordpress.com/2021/02/06/tips-to-choose-the-perfect-cake-stands/)
+- [Tips To Choose The Perfect Cake Stands](https://ideasmamas.tumblr.com/post/642368735053824000)
 - [Tips To Choose The Perfect Cake Stands](https://www.youtube.com/watch?v=EhGGemMMoOg)
 - [Tips To Choose The Perfect Cake Stands](https://ideas-mama.blogspot.com/2021/02/tips-to-choose-perfect-cake-stands.html)
 - [College Graduation Gifts For Her](https://ideasmamas.tumblr.com/post/637972260173529088)
