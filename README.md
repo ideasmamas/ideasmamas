@@ -25,6 +25,8 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How to Choose a Perfect Gift for Your Teacher](https://ideasmama.weebly.com/blog/how-to-choose-a-perfect-gift-for-your-teacher)
+- [How to Choose a Perfect Gift for Your Teacher](https://ideasmamas.wordpress.com/2021/04/10/how-to-choose-a-perfect-gift-for-your-teacher/)
 - [How to Choose a Perfect Gift for Your Teacher](https://www.youtube.com/watch?v=p1zzVGFfIgY)
 - [How to Choose a Perfect Gift for Your Teacher](https://ideas-mama.blogspot.com/2021/04/how-to-choose-perfect-gift-for-your.html)
 - [Tips To Choose The Perfect Cake Stands](https://ideasmama.weebly.com/blog/tips-to-choose-the-perfect-cake-stands)
