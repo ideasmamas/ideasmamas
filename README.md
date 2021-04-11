@@ -25,6 +25,8 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Unique First Communion Gift Ideas](https://www.youtube.com/watch?v=FIWQwRirICI)
+- [7 Unique First Communion Gift Ideas](https://ideasmamas.tumblr.com/post/648157825629028352)
 - [7 Unique First Communion Gift Ideas](https://ideas-mama.blogspot.com/2021/04/7-unique-first-communion-gift-ideas.html)
 - [How to Choose a Perfect Gift for Your Teacher](https://ideasmamas.tumblr.com/post/648077295768190976)
 - [How to Choose a Perfect Gift for Your Teacher](https://ideasmama.weebly.com/blog/how-to-choose-a-perfect-gift-for-your-teacher)
