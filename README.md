@@ -25,6 +25,8 @@
 ### ?? Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [7 Unique First Communion Gift Ideas](https://ideasmama.weebly.com/blog/7-unique-first-communion-gift-ideas)
+- [7 Unique First Communion Gift Ideas](https://ideasmamas.wordpress.com/2021/04/11/7-unique-first-communion-gift-ideas/)
 - [Unique First Communion Gift Ideas](https://www.youtube.com/watch?v=FIWQwRirICI)
 - [7 Unique First Communion Gift Ideas](https://ideasmamas.tumblr.com/post/648157825629028352)
 - [7 Unique First Communion Gift Ideas](https://ideas-mama.blogspot.com/2021/04/7-unique-first-communion-gift-ideas.html)
